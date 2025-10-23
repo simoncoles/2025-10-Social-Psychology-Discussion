@@ -18,7 +18,18 @@ What ethics standards can we bring to bear on the actions of an individual - per
 Find a paper about using ethics to analyse every day actions
 Did she meet those reasonable expectations
 
+Find soemthing about standard leak detection
+Refer back to phone hacking, seen in that context too
+
 Then look at what the court found
+
+What either one didn’t wasn’t illegal or indeed unethical
+The harm to Vardy was at her own hand
+That Vardy sued for defamation indicated she felt her actions were unethical/shameful
+
+The legal case was libel/defmation not the act so their judgement on the ethics wasn’t a thing
+
+
 
 
 ## Post 1 Question 2
