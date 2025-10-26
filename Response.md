@@ -69,3 +69,7 @@ This happens in many fields as a matter of course, for example consumers have mo
 
 Poewr
 
+Four Component Model from James Rest
+
+https://explore.bps.org.uk/binary/bpsworks/91a6fa375189b079/cc4a46abc113771a73a0bd519c352fd969f15dc07ea176de01f05ac02da08aae/inf236_2015.pdf#page=17.05
+
